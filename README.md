@@ -1,1 +1,1 @@
-I might be limited, but my machines are not.
+I might be limited, my machines are not.
